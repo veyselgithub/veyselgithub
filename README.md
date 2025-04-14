@@ -11,7 +11,7 @@ I'm Veysel - aka [VD BlOG][website]
 - 🔭 I am studying Information Systems Engineering
 - 🌱  I’m currently learning everything
  - 🥅 2020 Goals:Developing more projects
-- ⚡ Fun fact: I love to music and play piano extra: I like to video games
+- ⚡ Fun fact: I like music and play the piano extra: I like video games
 
 ### Spotify Playing 🎧
 
